@@ -28,14 +28,14 @@ Soylent has good company practices and their stuff is way better than Huel, whic
 ## ..
 
 
-Even if I lived in Israel, I would still have a similar diet, if there were kosher Fleichiks for a Rotessire Chicken, maybe the prices could compare.
+Even if I lived in Israel, I would still have a similar diet, if there were Kosher Fleichiks for a Rotessire Chicken, maybe the prices could compare.
 
 
 ## Don'ts
 
-Don't eat that cooked, Salmon from the Deli. 
+Don't eat that cooked, Salmon from the Deli, too expensive. 
 
-Sushi isn't ALL that protein dense. 
+Sushi isn't ALL that protein dense, not worth it.
 
 It might be a good idea to buy a vegan sushi or a sushi which doesn't have meat and then use that rice and flavoring to flavor up your Tuna packs.
 

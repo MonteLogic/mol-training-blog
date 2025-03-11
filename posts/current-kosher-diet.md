@@ -24,3 +24,18 @@ https://www.amazon.com/Soylent-Complete-Recovery-Vitamins-Minerals/dp/B0CZ5FRSFV
 Mix these two together, this will taste good and be easy on the stomach.
 
 Soylent has good company practices and their stuff is way better than Huel, which is terrible on the stomach. The sickest, I've ever felt while taking Protein is while taking Huel.
+
+## ..
+
+
+Even if I lived in Israel, I would still have a similar diet, if there were kosher Fleichiks for a Rotessire Chicken, maybe the prices could compare.
+
+
+## Don'ts
+
+Don't eat that cooked, Salmon from the Deli. 
+
+Sushi isn't ALL that protein dense. 
+
+It might be a good idea to buy a vegan sushi or a sushi which doesn't have meat and then use that rice and flavoring to flavor up your Tuna packs.
+

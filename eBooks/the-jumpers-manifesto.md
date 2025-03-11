@@ -108,3 +108,7 @@ It's an angles, which which is at the movement angles. The certain movement Exis
 It's not all that explosive compared to banded jumps BECAUSE you cannot yank the initial part of the Power Clean. When starting the movement you have to go slow-er at first and then speed up. Contrast this with a resistance jump as it is explosive from the start.
 
 
+
+# Improving the one foot jump  
+
+

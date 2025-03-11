@@ -1,6 +1,6 @@
 
 
-Goal: Meet my protein goal, two grams of Protein for every kilo you weigh. 
+Goal: Meet your protein goal, two grams of Protein for every kilo you weigh. 
 
 
 

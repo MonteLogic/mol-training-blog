@@ -1,4 +1,4 @@
-100% Kosher, protein packed for the Hallachic lifter.
+100% Kosher, protein packed for the Hallachic Lifter.
 
 
 Goal: Meet your protein goal, two grams of Protein for every kilo you weigh. 
